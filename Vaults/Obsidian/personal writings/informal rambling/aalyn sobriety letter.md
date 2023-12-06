@@ -1,0 +1,57 @@
+# Unorganized thoughts
+i want to write her a letter that is Honest. this letter is maybe going to damage our relationship. i hope that it will heal back stronger. i want aalyn to be someone who i can go through my life with. i want to be able to share experiences with her and be honest with her about who i am, what i do, etc. emphasize this.
+//
+the lie of sobriety is not sustainable. getting sober is not something i can do alone. (it probably is, but why would I? didn't the first time, and that went a lot better)
+//
+i do not think she actually cares about my sobriety. maybe she does. i think mostly what she cares about is the image of our relationship in her mind. 
+	if what she cares about is how much i love her, in a "ooh it would be so nice if he loved me so much that i could get him to quit drugs" way, then we need to break up. i cannot have my wife candidate controlling what i can and cant do. for now its drugs, but next, what will it be? my drug-doing friends? a book i read instead of being with her?
+		"why doesn't this apply to me talking to jaxon/weird guy i hate that stole my phone but that i kept talking to for some reason?"
+			because you claim to not like men. why do you talk to these men if you don't like men? you avoid my father, the kindest man i have ever known, and yet you will freely give your time to these rats who clearly just want you for sex.  
+			men have a lot more agency than drugs do. drugs dont want to have sex with you. drugs dont have an incentive to get you to break up with your boyfriend.
+	
+//
+she needs to understand the gravity of addiction. i need to exaggerate it a bit. although i have a habit of undertelling my suffering so perhaps this will balance out to be something resembling the truth.
+//
+something that i need to come to terms with is that we have fundamentally different views on drugs. i love drugs and have no intention of ceasing my use of them permanently, only altering my relationship with them (by that i mean, bringing weed in line with the rest and adhering to rules)
+
+i honestly am not sure if our relationship can weather this disagreement. i need to tell her flat out that i am not going to stop doing drugs forever. she needs to accept that it is my right to mess with my mind in any way i see fit. 
+	i need to consider my ethical stance on this a bit more. 
+	what obligation do i have to her to be healthy? - some, which i fulfill. in the same manner, she has the obligation to ME to be healthy, such as going to gym, therapy, keeping up on school, room clean, taking vitamins, etc. and until these obligations are met i see no reason i need to be the arbiter of health by being 100% sober, even to drugs i dont have issues with
+	it is controlling to make me not use drugs, no matter how reasonable her fears of them are	
+
+# Real draft (trim like 80%)
+
+I want to offer you the most sincere apology I have ever given anyone in my life. I will probably be apologizing for this for years. This is not going to be a happy letter, and for that I am also sorry, because you deserve happiness. 
+
+I have not been sober. I suspect you know this. I'm not sure though, but I am sure you don't know how bad it is. But you deserve to know, and I want to tell you the parts of the last semester I didn't tell you about, why I'm doing what I'm doing, and what the future looks like for us. 
+
+I was sober for about 5-8 days before I relapsed the first time. I told you about it. I couldn't sleep for some reason, was going actually crazy, so I decided to hit a cart a couple times and go to sleep. Worked like a charm. I almost don't even count this one, because it was the definition of medicinal use. But still, not ideal.
+
+The second time was when it became an issue. I was 2 weeks sober and at Max's house. I say I was 2 weeks sober, but at this point, I had actually been ~2-6 months sober (memory of this is hard) because my tolerance to weed was high enough that I was actually not capable of getting high, no matter the dose. I tried, trust me. I smoked to be able to eat and sleep, not get high. This relapse was pure hubris. Those first 2 weeks of being sober were actually so easy for me. I had next to no trouble getting sober. Because of this, I prematurely declared victory over the illness, a behavior I now recognize as a symptom of the illness. And I thought, "I haven't been high in *so long*, and I'm better now--why not remember what it feels like?"
+
+It felt great. And then it was over. I thought about telling you. I came really, really close to it, but I just couldn't bring myself to. The smart thing would have been to be honest when you asked me whether or not I was being a "good boy" or whatever you asked me when I got there, but I did not want to have to text you all night. The morning after, I spent about an hour trying to think about how to bring it up. It made me feel so awkward. I felt like I was just ringing your doorbell so I could throw a pie in your face. And after all, I was fine, so why did you need to know? I just wouldn't do it again, and it would all be fine. I didn't intend on lying, it kind of just happened out of convenience. I'm sorry. I wish I could do it again. 
+
+For 4-5 days after that I didn't smoke or have cravings, and then I thought to myself, "well, I've been sober this long without cravings, surely I'm cured!" I want you to not rip this paper in half when you read next that I have (pretty much) not been sober for a single day since I had that thought. I have been trying. So hard. I have never tried this hard to do anything. I have gone literally insane trying to figure this out, which is going to be the next topic.
+
+You probably remember a few weeks into the semester when I told you I was tripsitting Sammy and turned my phone off. I lied to you about this. Me and Sammy did LSD together. My reasons for lying were numerous and not well thought out. I obviously wanted to tell you the truth, but I was afraid you would ask why I was doing it when I told you earlier that I would be completely sober, which brings me to my reason for doing LSD. I did LSD because I wanted to know why quitting the second time was so much harder than quitting the first time. A sort of psychedelic drug called Memantine is what made me realize I wanted to not be an addict anymore, so a real Psychedelic, in my mind, would help bring me back in line.
+This did not happen. The LSD trip I got was manic psychosis, not introspection. I went actually bananas. I do not have very good memory of the event, maybe like 10-20 seconds total, you can ask Sammy or Hamza if you want the detailed story. But in short, it was the opposite of helpful. I don't know if you remember this part or not, but for a while I was convinced I had bipolar disorder because of it. I still think that the most likely cause of this event is some dormant mental illness, but I think bipolar is probably not it. I try not to think about it too often. 
+
+After this was a daily struggle. I'd wake up, filled with determination to be sober, be fighting cravings by 12, and eating lunch the hour after that. Our funny little words and silly little sentences cannot possibly do justice the constant war in my mind. When I was sober, I was constantly thinking about weed, and when I wasn't sober, I was constantly thinking about how embarrassing it is that I can't quit the least-addictive addictive drug, what a disappointment I was, how I was so close to doing it, and just how utterly stupid I was for still struggling with it. It could not have helped my schoolwork, and the stress of my schoolwork certainly didn't help it. 
+
+The only time I made progress was when I tried to quit very, very slowly, literally by an hour each day. The first day of the week, I woke up, and decided I'd let myself smoke at 12, the day after at 1, after that at 2, etc. until I could make it a full day. This almost felt like it might have worked, but I started having trouble at around 6. I was consistently making it to 6-7 at around the time that the whole Peyton situation exploded again, and after that I hardly had energy to fight the mental war anymore, so I gave in and gave my progress up. 
+
+After I moved back, I have made much progress. I think stress is a factor I have been largely ignoring because I do not see its effects on me while living it. It is 10 P.M. and I have not smoked today, the cravings were not bad at all and I even ate earlier. I have not eaten a full meal sober since I relapsed. That alone is incredible progress. Nothing has ever tasted so good to me. I was so happy I was able to finish my food without smoking. I haven't felt that good in a while. I don't think I can sleep without smoking tonight. But, I am more hopeful than I have been in months. I sincerely did not believe I could get sober for a while. I thought I was too weak. But I think I can do it now. I don't think it'll even be too hard. 
+
+I want to apologize again for lying to you. There's no excuse. But, at this point, I want to shift from documentarian to prescriptive. The conditions of our relationship that lead me to lie about this need to change, for the sake of preventing future lies and my lasting control over my addiction. 
+
+I do not want to be sober forever. I want to be a responsible drug user. I do not want to be an addict. I think this is possible, and I'm going to tell you now, I will be attempting this next (school) year. I know I told you after doing memantine that I'd be sober everything forever, and I remember you being glad I said that, and I'm sure you doubted me, even if I didn't. That doubt was valid. And I'm sorry that I can't live up to the platonic ideal of 'boyfriend' in your mind. 
+
+I'm going to be mostly sober for this summer. GABAergic drugs in particular have had a profoundly positive effect on my mental health when I'm sober, so I think I may use them a few odd times, but not too often. I can explain what I mean more if you're curious, but I doubt you are so I'll spare you that. 
+
+I want you to be part of the mechanism that keeps me responsible, for both of our sakes. My first idea was that I'd keep a log of all my drug use and that you can tell me at any point if you think I do too much. The main issue with this system is that I do not know a way I'd be comfortable sharing it, because just having it on a google doc is not secure enough for me. If it was something benign like a grocery list that'd be fine, but for what is essentially a list of times I've broken the law, there's a higher bar. I don't know of any services that would meet this. At the bottom of this page I've attached my drug schedule, which is a glossary of the drugs I do, how often I allow myself to do them, and the punishments for overconsuming. 
+
+This was all written before my grandma died. I think I wrote this when she was appearing like she was recovering, monday-tuesday of finals week. Everything past this point is written from the day of her funeral and onwards.
+
+I've been struggling a lot with this. I feel a lot of pressure to tell you as soon as I can but I haven't organized my thoughts enough yet. My grandma dying came out of nowhere. It's kind of impossible for me to understand right now. And it's taken up all the energy I was previously putting towards beating back my addiction. But the good news is that I did make a good bit of progress in that time, and I'm nowhere near as bad as I was when I quit the last time. 
+
+I'm sorry. I'm going to try to be better. I love you.

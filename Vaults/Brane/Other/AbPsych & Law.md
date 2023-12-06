@@ -1,0 +1,2 @@
+Civil commitment - A person is involuntarily taken into psychiatric care due to being considered a threat to themselves or others. Usually, not always, driven to the hospital by family.
+Legal commitment - Involuntary psychiatric care as a result of some criminal action

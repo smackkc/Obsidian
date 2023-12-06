@@ -1,0 +1,1 @@
+there's a substantial, serious disconnect between the scientists who research things and practitioners who actually treat things. practitioners often disregard scientific evidence as being irrelevant to their personalized approaches. 
